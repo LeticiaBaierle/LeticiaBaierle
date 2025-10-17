@@ -1,4 +1,4 @@
- Oiii pessoal! Me chamo Leticia ｡◕‿◕｡ 👋
+ Oiii pessoal! Me chamo Leticia 👋
 
 
 
